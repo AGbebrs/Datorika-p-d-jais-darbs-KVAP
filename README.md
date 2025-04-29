@@ -1,0 +1,1 @@
+# Datorika-p-d-jais-darbs-KVAP
